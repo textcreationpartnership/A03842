@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-CAPTAINE HVMES Poeticall Musicke.Principally made for two Basse-Viols, yet so contriued, that it may
+
 1. Alwaies thus to the Reader.
 
 1. TO THE RIGHT VVORthely innobled, PHILIP Earle of Arundel, &c.
